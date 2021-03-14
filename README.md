@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @G0razd
+- 👀 I’m interested in interesting stuff
+- 🌱 I’m currently learning what the actual fuck did I just create
